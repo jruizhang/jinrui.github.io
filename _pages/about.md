@@ -34,3 +34,8 @@ My name is Yuqian Hu.
 
 # 💻 Internships
 - *2022.11 - now*, Bayer Healthcare Co., Ltd, Beijingm, China
+
+- hahahahah
+- nininini
+- wowowowo
+- 
